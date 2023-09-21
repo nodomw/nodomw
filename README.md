@@ -1,5 +1,8 @@
-### Hi there 👋
+### helo travelor...! 
 
+i am The Ultaimat, the kil.er! bOw bferoe my kneez!
+
+Uor yo will fase my rath!
 <!--
 **nodomw/nodomw** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
